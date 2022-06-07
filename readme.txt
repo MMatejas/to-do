@@ -1,1 +1,4 @@
 Beda tu pliku z zajec.
+NIC TU NIE BEDZIE POKI NIE WYDAM NA TO ZGODY
+
+HALA UML!
