@@ -1,0 +1,1 @@
+Beda tu pliku z zajec.
